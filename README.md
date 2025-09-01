@@ -1,20 +1,21 @@
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
- ### ⌦ The name's Johnny silverhand, call me whatever you want, i dont really care. I am a fictionkin of johnny from cyberpunk. ©
+ ### ⌦ The name's Johnny silverhand, call me whatever you want, i dont really care. I am a fictionkin of johnny from cyberpunk. 🎸
  
 ▃▃▃▃▃▃▃
 
-☆ I am an adult, I got heavy no "BS" policy, **MINORS DNI.**. those who are pedophiles, groomers, proshippers or any sort of sick shit like that do NOT interact with me or ill harass you.
+🎸 
+I am an adult, I got heavy no "BS" policy, **MINORS DNI.**. those who are pedophiles, groomers, proshippers or any sort of sick shit like that do NOT interact with me or ill harass you.
 
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
 <img width="735" height="136" alt="image" src="https://github.com/user-attachments/assets/1b291342-8fea-4d7f-a5ce-e178aee6c33c" />
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
 
-☆ *Im pretty chill otherwise. I've got my cool friends. I always am by the spawn or bakery. I can be offline for a long time so no, im not dead if anyone is wondering* ღ
+🎸 *Im pretty chill otherwise. I've got my cool friends. I always am by the spawn or bakery. I can be offline for a long time so no, im not dead if anyone is wondering* ღ
 
 
 
 
-**ig thats it bye**
+🎸**ig thats it bye**
 
 ,
 
