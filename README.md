@@ -1,5 +1,5 @@
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
- ### ⌦ The name's Johnny silverhand, call me whatever you want, i dont really care. I am a fictionkin of johnny from cyberpunk. 🎸
+ ### ⌦ The name's Johnny silverhand or Snake, call me whatever you want, i dont really care. I am a fictionkin of johnny from cyberpunk & naked snake. 🎸
  
 ▃▃▃▃▃▃▃
 
