@@ -1,6 +1,7 @@
 <h1>$${\color{#087f5b} 𝐍𝐚𝐤𝐞𝐝 \space 𝐒𝐧𝐚𝐤𝐞}$$ 
 <p align="Center">$${\color{#293329}𝘴𝘯𝘢𝘬𝘦 \space 𝘪𝘴 \space 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥.}$$
- <p align="Center">$${\color{#293329}𝘪𝘳𝘭\space 𝘰𝘧 \space 𝘯𝘢𝘬𝘦𝘥 \space 𝘴𝘯𝘢𝘬𝘦 \space 𝘧𝘳𝘰𝘮\space𝘮𝘨𝘴3}$$
+ <p align="Center">$${\color{#293329}fictkin\space 𝘰𝘧 \space 𝘯𝘢𝘬𝘦𝘥 \space 𝘴𝘯𝘢𝘬𝘦 \space 𝘧𝘳𝘰𝘮\space𝘮𝘨𝘴3}$$ <p align="Center">$${\color{#293329}leon \space kennedy \space fictkin}$$
+ <p align="Center">$${\color{#293329}Johnny \space Silverhand \space fictkin}$$
 
 
 <p align="Center">══════════════════════════════════════════
