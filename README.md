@@ -1,8 +1,9 @@
-<h1>$${\color{#087f5b} 𝐍𝐚𝐤𝐞𝐝 \space 𝐒𝐧𝐚𝐤𝐞}$$ 
-<p align="Center">$${\color{#293329}𝘴𝘯𝘢𝘬𝘦 \space 𝘪𝘴 \space 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥.}$$
- <p align="Center">$${\color{#293329}fictkin\space 𝘰𝘧 \space 𝘯𝘢𝘬𝘦𝘥 \space 𝘴𝘯𝘢𝘬𝘦 \space 𝘧𝘳𝘰𝘮\space𝘮𝘨𝘴3}$$ <p align="Center">$${\color{#293329}leon \space kennedy \space fictkin}$$
+<h1>$${\color{#087f5b} Stanley/ \space 𝐒𝐧𝐚𝐤𝐞 \space / John}$$ 
+<p align="Center">$${\color{#293329}𝘴𝘯𝘢𝘬𝘦\space/ stanley \space 𝘪𝘴 \space 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥.}$$
+ <p align="Center">$${\color{#293329}fictkin\space 𝘰𝘧 \space 𝘯𝘢𝘬𝘦𝘥 \space 𝘴𝘯𝘢𝘬𝘦 \space 𝘧𝘳𝘰𝘮\space𝘮𝘨𝘴3}$$ <p align="Center">$${\color{#293329}Stanley \space from \space Stanley \space Parable \space fictkin}$$
  <p align="Center">$${\color{#293329}Johnny \space Silverhand \space fictkin}$$
 
+<p align="Center"><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/da85ea48-7fd1-4062-8655-b94604fbfb76" />
 
 <p align="Center">══════════════════════════════════════════
 <p align="Center">$${\color{#087f5b}He \space Him \space only.}$$
@@ -24,6 +25,8 @@
 <img width="99" height="55" alt="456553936-86b4f441-69e5-49fe-a54f-21ef25ab266e" src="https://github.com/user-attachments/assets/ec4a8f14-4616-403a-8c71-e5933c602c35" />
 ![d4aqqul-278aa7fb-94c9-4655-bca6-46b0094d3525](https://github.com/user-attachments/assets/3254d937-10e6-4c65-989d-71c4125684f9)
 ![d476t8i-a0b9c113-bb02-4e0e-8f62-4bbac518487d](https://github.com/user-attachments/assets/b8807179-813e-4789-bb66-792da4f866fa)<img width="99" height="56" alt="chris_redfield_stamp_1_by_claire_revelations_d9r44wo-fullview" src="https://github.com/user-attachments/assets/822b216a-4f04-4a06-bba9-1b368964c17f" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c135aacb-b867-40bb-abc3-42fadc79651a" />
+
 
 
 
