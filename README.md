@@ -1,4 +1,4 @@
-<h1>$${\color{#087f5b} Stanley/ \space 𝐒𝐧𝐚𝐤𝐞 \space / John}$$ 
+<h1>$${\color{#087f5b} 𝐒𝐭𝐚𝐧𝐥𝐞𝐲/ \space 𝐒𝐧𝐚𝐤𝐞 \space / John}$$ 
 <p align="Center">$${\color{#293329}𝘴𝘯𝘢𝘬𝘦\space/ stanley \space 𝘪𝘴 \space 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥.}$$
  <p align="Center">$${\color{#293329}fictkin\space 𝘰𝘧 \space 𝘯𝘢𝘬𝘦𝘥 \space 𝘴𝘯𝘢𝘬𝘦 \space 𝘧𝘳𝘰𝘮\space𝘮𝘨𝘴3}$$ <p align="Center">$${\color{#293329}Stanley \space from \space Stanley \space Parable \space fictkin}$$
  <p align="Center">$${\color{#293329}Johnny \space Silverhand \space fictkin}$$
