@@ -1,15 +1,14 @@
-<h1>$${\color{#087f5b} 𝐒𝐭𝐚𝐧𝐥𝐞𝐲}$$ 
-<p align="Center">$${\color{#293329}stanley \space 𝘪𝘴 \space 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥.}$$
- <p align="Center">$${\color{#293329}fictkin\space 𝘰𝘧 \space 𝘯𝘢𝘬𝘦𝘥 \space 𝘴𝘯𝘢𝘬𝘦 \space 𝘧𝘳𝘰𝘮\space𝘮𝘨𝘴3}$$ <p align="Center">$${\color{#293329}Stanley \space from \space Stanley \space Parable \space fictkin}$$
- <p align="Center">$${\color{#293329}Johnny \space Silverhand \space fictkin}$$
+<h1>$${\color{#6400A3} **Sam** \space 𝐒𝐭𝐚𝐧𝐥𝐞𝐲}$$ 
+<p align="Center">$${\color{#4F4F4F}both \space are \space 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥.}$$
+ <p align="Center">$${\color{#4F4F4F}Stanley \space from \space Stanley \space Parable \space fictkin}$$
 
 
 <p align="Center">══════════════════════════════════════════
-<p align="Center">$${\color{#087f5b}He \space Him \space only.}$$
+<p align="Center">$${\color{#6400A3}He \space They \space only.}$$
 <p align="Center">$${\color{#691300}𝐃𝐍𝐈\space 𝐂𝐑𝐈𝐓𝐄𝐑𝐈𝐀,\space 𝐍𝐎\space 𝐁𝐒\space 𝐏𝐎𝐋𝐈𝐂𝐘:}$$
  <p align="Center">$${\color{#4F0D00}𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴,\space𝘱𝘦𝘥𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘻𝘰𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘦𝘤𝘵. \space MINORS \space DNI.}$$
 <p align="Center">══════════════════════════════════════════
- <p align="Center">$${\color{#087f5b}check \space out \space my \space other \space shit.}$$
+ <p align="Center">$${\color{#6400A3}check \space out \space my \space other \space shit.}$$
 
 
  
