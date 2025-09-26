@@ -3,7 +3,6 @@
  <p align="Center">$${\color{#293329}fictkin\space 𝘰𝘧 \space 𝘯𝘢𝘬𝘦𝘥 \space 𝘴𝘯𝘢𝘬𝘦 \space 𝘧𝘳𝘰𝘮\space𝘮𝘨𝘴3}$$ <p align="Center">$${\color{#293329}Stanley \space from \space Stanley \space Parable \space fictkin}$$
  <p align="Center">$${\color{#293329}Johnny \space Silverhand \space fictkin}$$
 
-<p align="Center"><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/da85ea48-7fd1-4062-8655-b94604fbfb76" />
 
 <p align="Center">══════════════════════════════════════════
 <p align="Center">$${\color{#087f5b}He \space Him \space only.}$$
