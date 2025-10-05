@@ -1,6 +1,5 @@
-<h1>$${\color{#6400A3} **Sam** \space 𝐒𝐭𝐚𝐧𝐥𝐞𝐲}$$ 
-<p align="Center">$${\color{#4F4F4F}both \space are \space 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥.}$$
- <p align="Center">$${\color{#4F4F4F}Stanley \space from \space Stanley \space Parable \space fictkin}$$
+<h1>$${\color{#6400A3} **Sam** \space Anything}$$ 
+ <p align="Center">$${\color{#4F4F4F}Name \space Changes \space freq.}$$
 
 
 <p align="Center">══════════════════════════════════════════
