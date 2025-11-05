@@ -1,13 +1,12 @@
-<h1>$${\color{#6400A3} **Sam** \space Anything}$$ 
- <p align="Center">$${\color{#4F4F4F}Name \space Changes \space freq.}$$
-
-
+<h1>$${\color{#FF6D05} Robert \space / Sam}$$ 
+ <p align="Center">$${\color{#4F4F4F} fictkin \space of \space robert, \space dispatch. }$$
 <p align="Center">══════════════════════════════════════════
-<p align="Center">$${\color{#6400A3}He \space They \space only.}$$
+<p align="Center">$${\color{#FFA461}He \space him \space only.}$$
+<p align="Center">══════════════════════════════════════════
 <p align="Center">$${\color{#691300}𝐃𝐍𝐈\space 𝐂𝐑𝐈𝐓𝐄𝐑𝐈𝐀,\space 𝐍𝐎\space 𝐁𝐒\space 𝐏𝐎𝐋𝐈𝐂𝐘:}$$
  <p align="Center">$${\color{#4F0D00}𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴,\space𝘱𝘦𝘥𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘻𝘰𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘦𝘤𝘵. \space MINORS \space DNI.}$$
 <p align="Center">══════════════════════════════════════════
- <p align="Center">$${\color{#6400A3}check \space out \space my \space other \space shit.}$$
+ <p align="Center">$${\color{#FFA461}check \space out \space my \space other \space shit.}$$
 
 
  
