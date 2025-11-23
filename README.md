@@ -1,12 +1,12 @@
-<h1>$${\color{#FF6D05} Robert \space / Sam}$$ 
- <p align="Center">$${\color{#4F4F4F} fictkin \space of \space robert, \space dispatch. }$$
+<h1>$${\color{#8AE4FF} Vox \space / Sam}$$ 
+ <p align="Center">$${\color{#3600BF} fictkin \space of \space vox, \space Hazbin_hotel }$$
 <p align="Center">══════════════════════════════════════════
-<p align="Center">$${\color{#FFA461}He \space him \space only.}$$
+<p align="Center">$${\color{#3600BF}He \space him \space only.}$$
 <p align="Center">══════════════════════════════════════════
-<p align="Center">$${\color{#691300}𝐃𝐍𝐈\space 𝐂𝐑𝐈𝐓𝐄𝐑𝐈𝐀,\space 𝐍𝐎\space 𝐁𝐒\space 𝐏𝐎𝐋𝐈𝐂𝐘:}$$
- <p align="Center">$${\color{#4F0D00}𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴,\space𝘱𝘦𝘥𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘻𝘰𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘦𝘤𝘵. \space MINORS \space DNI.}$$
+<p align="Center">$${\color{#00698F}𝐃𝐍𝐈\space 𝐂𝐑𝐈𝐓𝐄𝐑𝐈𝐀,\space 𝐍𝐎\space 𝐁𝐒\space 𝐏𝐎𝐋𝐈𝐂𝐘:}$$
+ <p align="Center">$${\color{#00698F}𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴,\space𝘱𝘦𝘥𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘻𝘰𝘰𝘱𝘩𝘪𝘭𝘦𝘴,\space𝘦𝘤𝘵. \space MINORS \space DNI.}$$
 <p align="Center">══════════════════════════════════════════
- <p align="Center">$${\color{#FFA461}check \space out \space my \space other \space shit.}$$
+ <p align="Center">$${\color{##2722B5}check \space out \space my \space other \space shit.}$$
 
 
  
