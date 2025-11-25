@@ -1,5 +1,5 @@
-<h1>$${\color{#8AE4FF} Vox \space / Sam}$$ 
- <p align="Center">$${\color{#3600BF} fictkin \space of \space vox, \space Hazbin_hotel }$$
+<h1>$${\color{#8AE4FF} Vox \space / VINCENT \space / sam}$$ 
+ <p align="Center">$${\color{#3600BF} fictkin \space of \space vox/vincent, \space Hazbin_hotel }$$
 <p align="Center">══════════════════════════════════════════
 <p align="Center">$${\color{#3600BF}He \space him \space only.}$$
 <p align="Center">══════════════════════════════════════════
