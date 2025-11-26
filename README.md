@@ -16,6 +16,7 @@
 
  
 <p align="center">$${\color{#005794}﹉﹉﹉ I \space got \space no \space BS \space policy. \space MDNI, \space zoophiles/pedophiles/homophobes \space DNI. \space More \space DNI \space in \space my \space carrd.﹉﹉﹉}$$
+<p align="center">$${\color{#FF0000}︶🌐︶DO \space NOT\space  COPY\space  MY \space SKINS!︶🌐︶}$$
  
  ![tumblr_e155048f637ff88a5a833b00e6faf159_b28f2511_2048](https://github.com/user-attachments/assets/a5f0a896-b77b-4e93-aa3a-8966f5b1e96f)
 
