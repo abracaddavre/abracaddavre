@@ -29,3 +29,5 @@ You want newer, you want bigger, you want brighter
 I will be your voice, and we will redefine what it means to rule the airwaves
 Trust me, and your future will be brighter
 Now who's ready to be baptized into a new era of ENTERTAINMENT?!}$$⚠️
+
+<img width="1741" height="371" alt="Opera Snímek_2025-12-06_163423_64 media tumblr com" src="https://github.com/user-attachments/assets/0bc0131b-c71f-4075-a5ab-62023e0ea51d" />
